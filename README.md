@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Hamzah Nurrijal Islami
 
-NIM : 
+NIM : 607062400043
 
 ## Instruksi
 
